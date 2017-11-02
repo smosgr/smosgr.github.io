@@ -1,1 +1,0 @@
-# smosgr.github.io
